@@ -1,3 +1,3 @@
 # my intro
 hi i am noah
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT33EzPkVVFGq7KO3XqQSUdtk3Ho2Ovl9sY_A&s 
+![image](https://github.com/user-attachments/assets/9e81b178-5a65-4e02-bec3-d530fedb4c22)
